@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket vip Automation Script: trade-sniping & stop-loss-management, the #1 automation-script. Includes trade-sniping and
 
 
 
